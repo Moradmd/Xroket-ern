@@ -1,2 +1,2 @@
 # Xroket-ern
-https://t.me/xrocket?start=mci_6VFPkPcDNIRhNNH
+#https://t.me/xrocket?start=i_lXHIC6se0I
